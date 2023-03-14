@@ -16,6 +16,10 @@ Update V 2 on March 1 2023
 
 added all the new stuff i could find. as well as album covers and the future salmon gear. as well as a folder specifically for the old splash and sploosh icons (i hate the new ones but i understand why they did it)
 
+
+i have a mid season update planned for this to add some text related things (like titles and stuff)
+
+
 youtube (pls i want the happy chemical) https://www.youtube.com/channel/UCRc-eXIuNla_SYhvgrfprug
 
 any questions go to my discord Desper#6676
